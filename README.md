@@ -1,0 +1,1 @@
+# 8-sinif-tc-inkilap-tarihi-brans-deneme-2020-2021-32
